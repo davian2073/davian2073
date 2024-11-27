@@ -1,4 +1,18 @@
-## Hi there 👋
+## Hai! 👋
+
+I'm a furry pansexual demigirl looking for improvement.
+
+###### 💻 Still waiting for a PC......
+I use an Android phone and am aiming to get a Linux PC.
+
+### 💬 Socials
+**🗨️ Discord**: davian2073 - I'm quite silly there sometimes....
+
+**🐦 Twitter**: @davi2073 - I post, sometimes.
+
+**🦋 Bluesky**: @davian2073.bsky.social - I lurk when I'm bored,,
+
+**🤫 Fun fact**: I used to make a game back in 2020 due to boredom during quarantine, but lost the computer right when i was done with the 6th and last chapter.
 
 <!--
 **davian2073/davian2073** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
